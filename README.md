@@ -118,7 +118,7 @@ We may update this Privacy Policy from time to time. When we do, we will update 
 
 If you have questions about this Privacy Policy or your data, contact us at:
 
-**Email:** havens.teng@gmail.com
+**Email:** drakeammer@gmail.com
 
 ---
 
